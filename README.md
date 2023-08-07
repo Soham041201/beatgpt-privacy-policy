@@ -1,0 +1,1 @@
+# beatgpt-privacy-policy
